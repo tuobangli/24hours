@@ -1,1 +1,1 @@
-# 36hours 
+# 24hours 
