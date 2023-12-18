@@ -1,2 +1,2 @@
-# Appeal for REDS mean
+# Appeal for REDS moments
 
