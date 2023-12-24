@@ -1,1 +1,1 @@
-#go to Kuala Lumpur today, then waiting for DS-2019. 
+#go to Kuala Lumpur today.
