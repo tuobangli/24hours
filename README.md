@@ -1,1 +1,1 @@
-leave Kuala Lumpur tomorrow, to saipan or Korea or bangkok.
+leave Kuala Lumpur tomorrow, to saipan or Korea or bangkok or manila.
