@@ -1,1 +1,1 @@
-#go to Kuala Lumpur today.
+leave Kuala Lumpur tomorrow, to saipan or Korea.
