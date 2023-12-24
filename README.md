@@ -1,1 +1,1 @@
-leave Kuala Lumpur the two days after tomorrow, to saipan. 22
+stay in Kuala Lumpur, take care of myself, waiting for DS-2019 for a week. 24
