@@ -1,1 +1,1 @@
-leave Kuala Lumpur tomorrow, to saipan.
+leave Kuala Lumpur tomorrow, to saipan. 19
