@@ -1,1 +1,1 @@
-#must go to Kuala Lumpur, just the time is not sure, so cancel the booking.
+#go to Kuala Lumpur today, then waiting for DS-2019. 
