@@ -1,1 +1,1 @@
-to Jeju. 
+to Saipan 2
