@@ -1,1 +1,1 @@
-to Jeju. 26
+to Jeju. 
