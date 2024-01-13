@@ -1,1 +1,1 @@
-I can also apply Technion transfer.
+contact Technion
