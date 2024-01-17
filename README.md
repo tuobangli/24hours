@@ -1,1 +1,1 @@
-contact Technion
+book a visa to Israel
