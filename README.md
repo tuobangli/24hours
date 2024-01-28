@@ -1,2 +1,1 @@
-
-https://sites.google.com/lbl.gov/esaintern/home
+already sent application of internship for Doudna's lab
