@@ -1,5 +1,5 @@
-already sent application of internship for Doudna's lab, waiting for reply 
+don't sent application of internship for Doudna's lab
 
-8
+10
 
 
