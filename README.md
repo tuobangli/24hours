@@ -1,3 +1,1 @@
-already sent application of internship for Doudna's lab, waiting for reply
-
-23
+stop sending application to Raulet and Doudna lab
